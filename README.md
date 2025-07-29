@@ -4,7 +4,10 @@
    hello! you can call me whatever you want, i dont really care, but Eel is preferable if you dont know me.
 
   ϟ [Strawpage](https://dumbasseel.straw.page)   ϟ [Atabook](https://dumbasseel.atabook.org)
+
 ϟ
+
 i am very shy when first talking to someone, as i dont know what to say. so i will be quiet, sorry
 i also dont know what to say half of the time so sorry if im really clueless when it comes to things
+
 ϟ
