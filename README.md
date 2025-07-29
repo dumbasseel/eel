@@ -3,7 +3,7 @@
 
    hello! you can call me whatever you want, i dont really care, but Eel is preferable if you dont know me.
 
-  ϟ [Strawpage](https://dumbasseel.straw.page)   ϟ [Atabook](https://dumbasseel.atabook.org)
+  ϟ [Strawpage](https://dumbasseel.straw.page)   ϟ [Atabook](https://dumbasseel.atabook.org)     ϟ  [Carrd](https://arches4men.carrd.co)
 
 ϟ
 
